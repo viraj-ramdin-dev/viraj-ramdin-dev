@@ -14,8 +14,6 @@
 
 - 📫 How to reach me **virajramdin01@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1X8-SMdw8SoXzFg5-AkztRw8JnoadHHNz/view](https://drive.google.com/file/d/1X8-SMdw8SoXzFg5-AkztRw8JnoadHHNz/view)
-
 - ⚡ Fun fact **A shrimp's heart is in its head.**
 
 <h3 align="left">Connect with me:</h3>
